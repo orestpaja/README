@@ -7,7 +7,6 @@
 
 - 📄 Know about my experiences [https://al.linkedin.com/in/orest-paja-116501133](https://al.linkedin.com/in/orest-paja-116501133)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
